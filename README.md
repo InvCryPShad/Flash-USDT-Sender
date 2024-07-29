@@ -1,9 +1,9 @@
 # TRANSFERABLE USDT FLASH SOFTWARE | UsdtFlash.cc
 </br>
 
-> [!IMPORTANT]
-OUR SERVICES IS STOPPED FOR 3 DAYS, WEBSITE IS UNDER MAINTENANCE FOR BIG UPDATES (YEARLY UPDATE).
-USDTFLASH.CC WILL BACK IN 31 JULY 2024. STAY TUNE!
+> [!NOTE]
+OUR OFFICAL WEBSITE WAS IS STOPPED FOR 3 DAYS IN 24 JUNE FOR UPDATES BUT SOFTWARE WAS STILL WORKING FOR ALL MEMBERS.
+UPDATE IS COMPLETED AND OFFICIAL WEBSITE IS ACTIVE AGAIN.
 
 
 __Tool is Working Stable With Fastest Transcations in The Market. USDT Flashing Has Never Been This Simple.</br> 
@@ -13,10 +13,6 @@ Flash USDT Tool Provide Understandable, Basic and Minimal Interface and Powerful
 <a href="https://usdtflash.cc/#purchase">
 <img src="https://i.ibb.co/myNL0hJ/Z2.png">
 </a>
-
-> [!IMPORTANT]
-OUR SERVICES IS STOPPED FOR 3 DAYS, WEBSITE IS UNDER MAINTENANCE FOR BIG UPDATES (YEARLY UPDATE).
-USDTFLASH.CC WILL BACK IN 31 JULY 2024. STAY TUNE!
 
 ## Fastest Performance
 Our USDT Flash Software delivers unrivaled speed, ensuring transactions complete in the blink of an eye. 
@@ -29,9 +25,6 @@ Flash USDTs are transferable and withdrawable. It can make multiple "jumps", tha
 **🛒For Access Key:** https://usdtflash.cc/ \
 **👤For Important Cases:** contact@usdtflash.cc
 
-> [!IMPORTANT]
-OUR SERVICES IS STOPPED FOR 3 DAYS, WEBSITE IS UNDER MAINTENANCE FOR BIG UPDATES (YEARLY UPDATE).
-USDTFLASH.CC WILL BACK IN 31 JULY 2024. STAY TUNE!
 
 <img src="https://i.ibb.co/Wp87xMt/usdtflashpricelist.png" alt="usdtflashplans">
 
