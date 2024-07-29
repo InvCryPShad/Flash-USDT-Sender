@@ -26,7 +26,7 @@ Flash USDTs are transferable and withdrawable. It can make multiple "jumps", tha
 **👤For Important Cases:** contact@usdtflash.cc
 
 
-<img src="https://i.ibb.co/Wp87xMt/usdtflashpricelist.png" alt="usdtflashplans">
+<img src="https://i.ibb.co/pXtXthD/usdtflashpricelist.png" alt="usdtflashplans">
 
 ## Features
 
