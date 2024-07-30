@@ -1,11 +1,6 @@
 # TRANSFERABLE USDT FLASH SOFTWARE | UsdtFlash.cc
 </br>
 
-> [!NOTE]
-OUR OFFICAL WEBSITE WAS IS IN UNDER MAINTENANCE FOR 3 DAYS IN 24 JUNE FOR UPDATES BUT SOFTWARE WAS STILL WORKING FOR ALL MEMBERS.
-NOW UPDATE IS COMPLETED AND OFFICIAL WEBSITE IS ACTIVE AGAIN.
-
-
 __Tool is Working Stable With Fastest Transcations in The Market. USDT Flashing Has Never Been This Simple.</br> 
 Flash USDT Tool Provide Understandable, Basic and Minimal Interface and Powerful Limitations.</br>
 #1 USDT Flash Software from https://usdtflash.cc for Your Deals.__
@@ -27,6 +22,11 @@ Flash USDTs are transferable and withdrawable. It can make multiple "jumps", tha
 
 
 <img src="https://i.ibb.co/pXtXthD/usdtflashpricelist.png" alt="usdtflashplans">
+
+> [!NOTE]
+OUR OFFICAL WEBSITE WAS IS IN UNDER MAINTENANCE FOR 3 DAYS IN 24 JUNE FOR UPDATES BUT SOFTWARE WAS STILL WORKING FOR ALL MEMBERS.
+NOW UPDATE IS COMPLETED AND OFFICIAL WEBSITE IS ACTIVE AGAIN.
+
 
 ## Features
 
